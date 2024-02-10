@@ -2,7 +2,7 @@
 - 👀 I’m interested in Project Management
 - 🌱 I’m currently learning Artificial Intelligence
 - 💞️ I’m looking to collaborate on Innovations in AI domain and Public Cloud
-- 📫 How to reach me ...
+- 📫 How to reach me @dhruv082@gmail.com
 - 😄 Pronouns: He (Him)
 - ⚡ Fun fact: I can speak German language
 
