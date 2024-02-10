@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Innovations in AI domain and Public Cloud
 - 📫 How to reach me: dhruv082@gmail.com
 - 😄 Pronouns: He (Him)
-- ⚡ Fun fact: I can speak German language
+- ⚡ Fun fact: I can speak German language and I am an Ambidextrous
 
 <!---
 DHRUBA005/DHRUBA005 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
